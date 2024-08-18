@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @okSayan
+- 👀 I’m interested in Softwares, Web and Sustainable bright living.
+- 🌱 I’m currently learning Web development.
+- 💞️ I’m looking to collaborate on Web Designs.
+- 📫 How to reach me ... you know.
+- 😄 Pronouns: He
+- ⚡ Fun fact: I live in a village.
