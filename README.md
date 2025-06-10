@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sayan Bar (@okSayan)
+- 👋 Hi, I’m Sayan (@okSayan)
 - 📧 Sayanbar.contact@gmail.com
 - 💡 Interested in Softwares, Web and Sustainable bright living concepts & designs.
 - 💞️ I’m looking to collaborate.
